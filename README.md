@@ -9,7 +9,6 @@
 *C+H for me is welcome [now]*
 
 ᛝ I would be annoyed if you brought my favorite fandom character out for a joke/SexJoke 
-
 · 💛 . _ #  Im 20y btw
 
 #⁺✚　🧡  𓈒　 *I very rarely online in pony town, if so it's just afk because I'm busy*
@@ -26,7 +25,7 @@
 
 › `` #✨ *Oh! And I play roblox too! If you are interested? In it I just add Tfort2 but if you still want to be friends with me,I'm afraid to talk*
 
-my fandom : TF2, LMK, AOUAD, Invincible. 
+my fandom : TF2, LMK, AOUAD, Invincible.[sinister mark my fav💛]]
 . *rbl name : Rex*
 #*Not playing crk anymore*
 ![Image](https://github.com/user-attachments/assets/e14adeea-32b0-461d-b49d-951335d04fe9)
