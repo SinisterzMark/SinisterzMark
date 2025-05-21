@@ -1,3 +1,6 @@
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2axjveg7jyxuxmzjrnxaxi3my&cover_image=true&theme=novatorem&show_offline=false&background_color=2a1a40&interchange=true&bar_color=c8cfb4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=E6740076&width=435&lines=ANGSTROMM!+)](https://git.io/typing-svg)
 ![Image](https://github.com/user-attachments/assets/6dadf0b3-5b83-47e9-9645-61cc1f8920ee)
 ![Image](https://github.com/user-attachments/assets/0fca6da8-3ed3-473c-b18a-b9bbea21ca9e)
