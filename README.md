@@ -1,4 +1,4 @@
-
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=E6740076&width=435&lines=ANGSTROMM!+)](https://git.io/typing-svg)
 ![Image](https://github.com/user-attachments/assets/6dadf0b3-5b83-47e9-9645-61cc1f8920ee)
 ![Image](https://github.com/user-attachments/assets/0fca6da8-3ed3-473c-b18a-b9bbea21ca9e)
 
