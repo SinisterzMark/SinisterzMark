@@ -27,9 +27,6 @@
 › `` #✨ *Oh! And I play roblox too! If you are interested? In it I just add Tfort2 but if you still want to be friends with me,I'm afraid to talk*
 
 my fandom : TF2, LMK, AOUAD, Invincible. 
-
 . *rbl name : Rex*
-
 #*Not playing crk anymore*
-
 ![Image](https://github.com/user-attachments/assets/e14adeea-32b0-461d-b49d-951335d04fe9)
