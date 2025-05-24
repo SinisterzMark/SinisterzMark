@@ -1,3 +1,4 @@
+![Image](https://github.com/user-attachments/assets/39008eb1-77c6-4127-bbdd-9b0c2538527c)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2axjveg7jyxuxmzjrnxaxi3my&cover_image=true&theme=novatorem&show_offline=false&background_color=2a1a40&interchange=true&bar_color=c8cfb4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
